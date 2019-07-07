@@ -2,4 +2,4 @@
 
 ##ACIKLAMA
 
-ya okursun ya da gug
+ya okursun ya da gulag
